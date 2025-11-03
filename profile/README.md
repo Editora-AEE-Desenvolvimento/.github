@@ -42,7 +42,7 @@ A Editora AEE atua no desenvolvimento de soluções para:
 
 ## 📞 Contato
 
-- **Email**: editora@unievangelica.edu.br
+- **Email**: periodicos@unievangelica.edu.br
 ---
 
 <div align="center">
